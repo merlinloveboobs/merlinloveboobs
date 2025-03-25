@@ -1,1 +1,1 @@
-https://count.getloli.com/@:merlinloveboobs
+<img src="https://count.getloli.com/@:merlinloveboobs" alt=":merlinloveboobs" />
